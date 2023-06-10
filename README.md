@@ -1,0 +1,2 @@
+# okosnkigra
+dawid okonski
